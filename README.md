@@ -1,1 +1,1 @@
-# Easy-and-free-AI-learning
+# Get started with AI learning for free and easily
